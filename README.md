@@ -1,2 +1,1 @@
-Thuong Pham
-Contact: FPT University
+Pham Thi Thuong
